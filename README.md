@@ -1,7 +1,7 @@
 - 👋 oiie sou a karollaine 
 - 👀 I’m interested in em aprender de tudo um pouco 
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 etou estudando de tudo 
+- 💞️ I’m looking to collaborate em ser melhor a cada dia 
 - uiiiiiiiiii
 - 😄 Pronouns:kkkk
 - ⚡ Fun fact: ...
